@@ -1,0 +1,1 @@
+If you're intersted in seeing more about me, visit my [LinkedIn](https://www.linkedin.com/in/kailee-morel-b89938198/), [Instagram](https://www.instagram.com/kaileesofia/), or [website](https://kailee-sofia.weebly.com/)!
