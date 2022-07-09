@@ -1,1 +1,1 @@
-![Image of Kailee's LinkedIn PFP](https://images.app.goo.gl/XvJ6janzTHZwzdwa6)
+![Image of Blue Color Blocks](https://images.app.goo.gl/NDzWgwnMy3Z8DiT17)
